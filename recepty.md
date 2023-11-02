@@ -22,3 +22,24 @@ Přeji dobrou chuť. Konzumaci nedoporučuji před důležitou schůzkou, pokud 
 _Autor: Jan Přibyslavský_
 
 ---
+GIT kuchařka kurzu DA testování
+
+## Palačinky
+
+### Suroviny
+* 200 g hladká mouka
+* 400 ml mleko
+* 2 ks vejce
+* 1 špetka sůl
+
+
+### Postup přípravy
+1. Hladkou mouku rozmixujeme se špetkou soli, mlékem a dvěma vejci tak, aby vznikla správná hustá směs vhodná pro palačinky (ani řídká, ani moc hustá).
+2. Na pánev s rozpáleným olejem vlijeme přibližně jednu malou naběračku směsi. Palačinku smažíme z obou dvou stran dozlatova.
+3. Na hotové palačinky naneseme libovolné množství čehokoliv, co nám chutná. Vhodné jsou marmelády, tvaroh, pudink nebo masová či zeleninová náplň.
+
+Poznámka autora receptu: Jednu porci počítám na 2 palačinky. Recepty vystačí přibližně na 8-10 palačinek v závislosti na velikosti pánve a tloušťce palačinek. :-)
+
+_Autor: Alla Dovha_
+
+---
