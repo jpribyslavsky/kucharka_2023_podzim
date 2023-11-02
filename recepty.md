@@ -41,7 +41,7 @@ _Autor: Jan Přibyslavský_
 Sirup je výborný na domácí limonádu nebo v zimě do čaje. 
 Je to skvělý pomocník v době chřipek, nachlazení a rým. Zvyšuje imunitu, působí protizánětlivě, má antioxidační účinek a pomáhá bojovat s virovými i bakteriálními infekcemi.
 
-Jen POZOR - plody musí být opravdu z keře černého bezu (Sambucus nigra), dostatečně zralé a musí se vařit minimálně 20 minut. Syrová šťáva totiž může být nejedlá až jedovatá.
+POZOR - plody musí být z keře černého bezu (Sambucus nigra), dostatečně zralé a musí se vařit alespoň 20 minut. Syrová šťáva totiž může být nejedlá až mírně jedovatá.
 
 _Autor: Mirka Vybíralová_
 
