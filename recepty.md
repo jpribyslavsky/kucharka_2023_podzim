@@ -42,8 +42,8 @@ _Autor: Jan Přibyslavský_
 1. Mouku, máslo, zakysanou smetanu, sůl a pepř zpracujeme na hladké nelepivé těsto, ideálne pomocí robota, aby se máslo příliš nerozpouštělo. 
 2. Těsto zabalíme do potravinové fólie a necháme odpočinout v lednici 15-30 min. Troubu předehřejeme na 180 °C.
 3. Těsto rozválíme a vložíme do koláčové formy (odpovídá 28 cm). Propícháme vidličkou a pečeme cca 15 min (do zlatova).
-4. Na dno predpečeného těsta uložíme na kostičky nakrájený modrý sýr a zalijeme smetanou prošlehanou se žloutky, solí a pepřem. Na vrch naskládáme plátky hrušky a doplníme brusinkovým džemem.
-5. Pečeme cca 40 min.
+4. Na dno předpečeného těsta uložíme na kostičky nakrájený modrý sýr a zalijeme smetanou prošlehanou se žloutky, solí a pepřem. Na vrch naskládáme plátky hrušky a doplníme brusinkovým džemem.
+5. Pečeme cca 40 min. Krájíme ideálne vychlazené.
 
 
 _Autor: Alexandra Rybová_
