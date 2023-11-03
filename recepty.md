@@ -49,3 +49,27 @@ _Autor: Jan Přibyslavský_
 _Autor: Alexandra Rybová_
 
 ---
+
+## Americké sušenky - Cookies
+
+
+### Suroviny
+* 250 g másla
+* 2 vejce
+* 500 g polohr. mouky (nebo 250g ovesných vloček-mix + 250 g špaldové mouky)
+* 250 cukru krupice (třtinový, kokosový...)
+* špetka soli
+* 1,5 prášek do pečiva
+* 200 - 350 g čokolády - nasekané (na vaření, nebo čokofloky);
+* můžeme přidat nasekané oříšky, semínka...
+
+
+### Postup přípravy
+1. Změklé máslo rozšlehat s cukrem a vejci.
+2. Přidáme ostatní suroviny.
+3. Utvoříme kuličky, které pečeme na pečícím papíře dál od sebe (roztečou se na placičky) nebo pečeme ve formách na
+   muffiny vytřené máslem nebo olejem - 1 PL těsta/ks 200°C asi 15 min. dozlatova.
+4. Manipulace je lepší po vychladnutí.
+
+
+_Autor: Linda Adámková_
