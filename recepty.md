@@ -73,3 +73,30 @@ _Autor: Alexandra Rybová_
 
 
 _Autor: Linda Adámková_
+
+## Wafličky od Majušky
+
+### Suroviny
+* 113 g másla
+* 270 g polohrubé mouky
+* špetka soli
+* 1 čl sódy bikarbony
+* 50 g kryst. cukru
+* 2 vejce
+* troška vanilkového extraktu
+* 450 ml plnotuč. mléka
+
+### Postup přípravy
+1. Předehřát waflovač
+2. Roztopit máslo v malé misce
+3. Poté přidat k máslu vejce, vanilku a mléko
+4. Ve velké misce smícháme mouku, sůl, sodu a cukr
+5. Přidáme tekuté ingredience do suchých a smícháme
+6. Použijeme 1 plnou žufánku na 1 wafli, pečeme do zlatova anebo křupava :)
+7. TIP: nejlépe chutnají s domácím meruňkovým džemem
+8. PRO TIP: hotové wafle můžeme zamrazit na později a pak stačí jen znova 
+narychlo rozpéct ve waflovači.
+
+_Autor: Mária Balcová_
+
+---
